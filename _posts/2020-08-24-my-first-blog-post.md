@@ -1,1 +1,1 @@
-quick blog for u fuckers today mavs win in 4 cause they have luca and idc what u think
+quick blog for u fuckers today mavs win in 4 cause they have luca and idc what u think--
